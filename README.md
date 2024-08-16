@@ -1,1 +1,1 @@
-# dekopinda-aceh-tamiang
+# dekopinda-karanganyar
